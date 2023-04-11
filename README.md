@@ -1,1 +1,0 @@
-# SEMP_prac
